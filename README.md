@@ -1,5 +1,5 @@
 - 👋 Hi, I’m @ravikant15
-- 👀 I’m interested in playing cricket 🏏
+- 👀 I’m interested in doing coding.
 - 🌱 I’m currently learning computer language
 - 📫 reach me with my mail 
 
